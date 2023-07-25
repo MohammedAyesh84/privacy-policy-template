@@ -67,7 +67,7 @@ This Privacy Policy Template is licensed under the [GNU General Public License, 
 
 Mohammed Ayesh
 
-* Email: mohammedayesh8410n@gmail.com
+* Email: mohammedayesh8410@gmail.com
 
 * GitHub: [https://github.com/MohammedAyesh84/](https://github.com/MohammedAyesh84/)
 
